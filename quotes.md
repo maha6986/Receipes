@@ -1,2 +1,3 @@
 ##BE GOOD DO GOOD
 ##NEVER GIVE UP
+##LIFE is Beautiful
